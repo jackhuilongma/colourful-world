@@ -1,2 +1,3 @@
 # colourful-world
 world is wonderful with all things around, just feel it, touch it, share it...
+Small leaps may big jumps, i think a creative thought is so awesome and can, we can tap it into the computer to realize it. It's interesting.
